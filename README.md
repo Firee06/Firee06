@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Firee06
+- 👀 I’m interested in Windows 10 Windows xp tranformation
+- 🌱 I’m currently learning html
